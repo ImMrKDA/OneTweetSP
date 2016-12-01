@@ -2,7 +2,7 @@
 
 One Tweet is a project about typography and creating meaning with text. We were told to create a poster choosing one of the following tweets:
 
-* **[]@jack](https://twitter.com/jack/status/20): just setting up my twttr**
+* **[@jack](https://twitter.com/jack/status/20): just setting up my twttr**
 * **[@CIA](https://twitter.com/CIA/status/474971393852182528): We can neither confirm nor deny that this is our first tweet.**
 * **[@Snowden](https://twitter.com/Snowden/status/648890134243487744): Can you hear me now?**
 * [@kourtneykardash](https://twitter.com/kourtneykardash/status/11175751424): Do ants have dicks?
