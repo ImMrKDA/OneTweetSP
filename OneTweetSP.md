@@ -54,7 +54,7 @@ I really like this poster because it's the only poster that actually gives an ef
 
 Here we go with my second favourite poster. I really like this poster because I managed to do a _broken_ word effect in the word "Broken". As I said I used Illustrator for first time just to do this project so this was such a fun experience learning how to do this kind of effects.
 
-I also make the word "just" bold so we can highlight the repetition within the tweet. I love that effect as well and I kept it a simple poster just using colour white for the text and black colour for the background. What I also like of this poster is the effect of pieces from the word "broken" falling down to the floor, which makes it more realistic and looks more broken.I really liked this poster and it helped me to improve my Illustrator skills. I got good reactions from everyone in class so that makes me happy about it as well.
+I also make the word "just" bold so we can highlight the repetition within the tweet. I love that effect as well and I kept it a simple poster just using colour white for the text and black colour for the background. What I also like of this poster is the effect of pieces from the word "broken" falling down to the floor, which makes it more realistic and looks more broken. I really liked this poster and it helped me to improve my Illustrator skills. I got good reactions from everyone in class so that makes me happy about it as well.
 
 ###Can you hear me now?
 
