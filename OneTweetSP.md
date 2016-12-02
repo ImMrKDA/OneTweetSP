@@ -30,7 +30,7 @@ The idea was to highlight the words "confirm" and "deny". To do that, I made the
 
 ###Ed Balls
 
-![poster 6](POSTER 6.jpg)
+![poster 6](POSTER 6 red.jpg)
 
 This is probably the simplest tweet from the list. I think this was a good challenge to do because I wanted to see what I could come up with about this simple tweet. The first thing that came to my mind was playing with the word "Balls" because I thought it was the only word I could do something with in terms of shapes or colours. "Ed" it's just a name so I didn't have many ideas for that.
 
@@ -82,4 +82,4 @@ I used blue as the background colour because I wanted the image to be kind of re
 
 ###To conclue
 
-This was such a great experience. I got to improve my Illustrator skills, I got to learn a bit more about colours and typography and I really enjoyed creating all these posters, from the less successful one until the most successful one. 
+This was such a great experience. I got to improve my Illustrator skills, I got to learn a bit more about colours and typography and I really enjoyed creating all these posters, from the less successful one until the most successful one.
